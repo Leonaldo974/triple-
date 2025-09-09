@@ -1,2 +1,0 @@
-# triple-
-school
